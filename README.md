@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Lallajit Nongmaithem
+- 👋 Hi, This is LNware
 - 👀
 
 
